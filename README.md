@@ -1,1 +1,1 @@
-## AI Based Humaoid Robotic Indian Army
+## AI Based Humanoid Robotic Indian Army
